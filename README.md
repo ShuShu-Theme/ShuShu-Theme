@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ShuShu-Theme
+- 👀 I’m interested in Games/Anime/Manga
+- 🌱 I’m currently learning programming 
